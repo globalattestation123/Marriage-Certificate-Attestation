@@ -4,6 +4,7 @@ A marriage certificate is a valuable record and which may affirm that the people
 Some normal purposes behind in getting a marriage certificate attestation are listed below. 
 
 •	Attested marriage certificate is required for acquiring a family visa from the goal nation. 
+
 •	This confirmation is likewise required for getting permanent residence visa from your goal nation. 
 
 A marriage certificate must be validated before utilizing for any worldwide purposes, so marriage certificate attestation is a necessary method for each migrant couple. This attestation technique will make your archive lawfully certified in the goal nation and furthermore make it reasonable to be appeared in front of the concerned authorities of the goal nation. Certificate attestation methods are not same in all nations, so the technique for the documentation will change as indicated by the issuing embassy. After the good completion of your marriage certificate attestation you can travel with your mate or family without other legal problems.  
